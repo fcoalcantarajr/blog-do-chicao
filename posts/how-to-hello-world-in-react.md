@@ -1,16 +1,5 @@
 ---
-title: How to write a simple hello world component in React
+title: Com a banheira vazia
 ---
 
-``` js
-import React from "react";
-
-const Hello = () => (
-  <p>You'll find me in a sea of dreams</p>
-);
-
-export default Hello;
-
-```
-
-This shows an example using syntax highlighting.
+E um hotel caro.
