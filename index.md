@@ -1,8 +1,8 @@
 ---
 layout: homepage.liquid
-title: Horsin' Around
+title: Blog do Chicão
 ---
 
-# Welcome to Hollywoo
+# Bem-vindo à dentro da sua cabeça.
 
-Hello. I am BoJack. Horseman, obviously
+Olá. Você, obviamente, sou eu.
