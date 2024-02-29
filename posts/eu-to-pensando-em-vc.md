@@ -42,3 +42,11 @@ Eu quero manter esse relacionamento vivo, mas uma andorinha só não faz verão.
 Preciso de esforço da sua parte para querer me encontrar também.
 
 E se não houver... De pouco adianta tudo que fiz.
+
+Eu tô cansado de só levar pedrada. Eu assumi e assumo tudo que disse e fiz. Mas não consigo mais nadar sozinho nesse relacionamento. E de que me adianta se você só quer se afastar?
+
+Nem pra me dar um bom dia direito você conseguiu fazer. E nem pra aceitar buscar ajuda profissional você foi também.
+
+Sou só eu que tenho que correr atrás? Sou só eu que tenho que atender ao que você quer?
+
+Eu quero minha amiga, minha confidente, minha amante, minha namorada de volta. Mas você não parece estar disposta. E isso dói pra caramba.
