@@ -50,3 +50,5 @@ Nem pra me dar um bom dia direito você conseguiu fazer. E nem pra aceitar busca
 Sou só eu que tenho que correr atrás? Sou só eu que tenho que atender ao que você quer?
 
 Eu quero minha amiga, minha confidente, minha amante, minha namorada de volta. Mas você não parece estar disposta. E isso dói pra caramba.
+
+Cansei de sentir saudades. Cansei de torcer para que volte ao normal. Cansei de me sentir um merda. Eu não quero mais me estressar pensando nisso toda manhã. O tempo tem parecido infinito e eu tô odiando cada segundo dele, nessa semana.
