@@ -54,3 +54,5 @@ Volte-me a contar da sua vida, volte a propor momentos para nos encontrarmos... 
 Agora, se você não confia e/ou não acha mais que somos capaz de voltar a ser de fato um casal, ao menos me diga isso, para que possamos dar cabo nesse relacionamento e seguir cada um com sua vida.
 
 O que não posso é continuar vivendo em angústia, dentro desse estado de incerteza e de casal de faz-de-conta, até porque esse estado só aumenta meu sentimento de abandono, de rejeição, de ser deixado de lado, de fazerem pouco caso de mim.
+
+Não espero resposta para logo, não tenho pressa - pelo menos não mais. Mas gostaria que, quando a resposta viesse, ela fosse definitiva para esse cenário que vivemos agora.
