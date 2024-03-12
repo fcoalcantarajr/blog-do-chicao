@@ -12,6 +12,8 @@ Não é só sobre diálogo. É sobre paciência.
 
 É abraçar o impacto, amando o que dá pra amar e dialogando constantemente para ajeitar e evoluir o que não dá pra amar, nem aceitar, nem respeitar.
 
+E também não dá pra guardar rancor. Só entendo que nunca fui de fato perdoado.
+
 É isso que precisa pra voltar.
 
 Não guardo orgulho, mas também preciso me preservar.
