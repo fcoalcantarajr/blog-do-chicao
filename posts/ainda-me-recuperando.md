@@ -1,5 +1,6 @@
 ---
 title: Ainda me recuperando.
+date: Last Modified
 ---
 
 Ela recusou meu espaço para gravar os trabalhos dela. Senti, de novo, o gelo dela. Mas talvez separar o trabalho dela do nosso relacionamento seja pelo melhor. Embora isso possa doer.
