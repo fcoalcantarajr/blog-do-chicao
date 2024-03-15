@@ -18,3 +18,19 @@ E também não dá pra guardar rancor. Só entendo que nunca fui de fato perdoad
 É isso que precisa pra voltar.
 
 Não guardo orgulho, mas também preciso me preservar.
+
+---
+
+13-04-2024:
+O pior dia. Tava pra implorar, mas resisti.
+
+---
+
+14-04-2024:
+Quase implorei mesmo nesse dia, mas me consegui ater apenas a informar sobre as reservas.
+
+---
+
+15-04-2024:
+Sinto a falta dela.
+Mas também sinto a falta de alguém para ter com quem curtir aventuras, dividir tarefas, e que me ajude a preencher meu corpo.
