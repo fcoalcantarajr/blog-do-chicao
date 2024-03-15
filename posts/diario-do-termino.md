@@ -34,3 +34,5 @@ Quase implorei mesmo nesse dia, mas me consegui ater apenas a informar sobre as 
 15-04-2024:
 Sinto a falta dela.
 Mas também sinto a falta de alguém para ter com quem curtir aventuras, dividir tarefas, e que me ajude a preencher meu corpo.
+
+![Essa é a falta que ela faz.](/assets/images/hm.png)
