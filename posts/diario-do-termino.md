@@ -35,4 +35,4 @@ Quase implorei mesmo nesse dia, mas me consegui ater apenas a informar sobre as 
 Sinto a falta dela.
 Mas também sinto a falta de alguém para ter com quem curtir aventuras, dividir tarefas, e que me ajude a preencher meu corpo.
 
-<img src="assets/images/hm.png"/>
+<img src="/workspaces/blog-do-chicao/posts/diario-do-termino.md"/>
