@@ -1,4 +1,6 @@
-## Eu sei lá
+---
+title: Eu sei lá.
+---
 
 Ainda pesa o término.
 
