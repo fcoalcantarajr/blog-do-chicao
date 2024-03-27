@@ -1,6 +1,6 @@
 ---
 title: Diário do término.
-date: Last Modified
+date: git Last Modified
 ---
 
 Acordei com um sentimento de abraço azedo ao redor de mim. E comecei a encontrar mais coisas dela, e aí comecei a guardar para entregar depois.
