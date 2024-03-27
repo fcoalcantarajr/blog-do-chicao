@@ -1,6 +1,6 @@
 ---
 title: Ideias de negócio
-date: Last Modified
+date: git Last Modified
 ---
 
 Área: Storytelling com dados
