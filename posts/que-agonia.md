@@ -1,6 +1,6 @@
 ---
 title: Estou agonizando.
-date: Last Modified
+date: git Last Modified
 ---
 
 Cansado de sofrer.
