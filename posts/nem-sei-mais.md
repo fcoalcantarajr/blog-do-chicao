@@ -1,6 +1,6 @@
 ---
 title: Já nem sei o que mais sentir.
-date: git Last Modified
+date: Last Modified
 ---
 
 Já nem sei mais o que tô sentindo.

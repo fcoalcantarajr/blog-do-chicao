@@ -1,6 +1,6 @@
 ---
 title: O sentimento não ajuda.
-date: git Last Modified
+date: Last Modified
 ---
 
 ##### 2024-02-27:

@@ -1,6 +1,6 @@
 ---
 title: É só isso
-date: git Last Modified
+date: Last Modified
 ---
 
 É só isso. Não tem mais jeito. Acabou. Boa sorte.

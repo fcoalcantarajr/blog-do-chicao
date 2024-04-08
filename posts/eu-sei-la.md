@@ -1,6 +1,6 @@
 ---
 title: Eu sei lá.
-date: git Last Modified
+date: Last Modified
 ---
 
 Ainda pesa o término.

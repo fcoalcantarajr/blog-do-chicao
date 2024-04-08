@@ -1,6 +1,6 @@
 ---
 title: Finalmente, a nostalgia.
-date: git Last Modified
+date: Last Modified
 ---
 
 1 mês depois que ela se foi, tive um ótimo dia proporcionado por uma das moças mais lindas que já conheci.

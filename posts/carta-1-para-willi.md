@@ -1,6 +1,6 @@
 ---
 title: Carta para ela.
-date: git Last Modified
+date: Last Modified
 ---
 
 Oie. Boa tarde.
